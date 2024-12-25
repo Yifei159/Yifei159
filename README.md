@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Yifei.
+# Hi there👋
 
 ## 🚀 About Me
 - I’m currently studing in **[UQ]**
